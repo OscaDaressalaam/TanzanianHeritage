@@ -15,4 +15,9 @@ Let's get started 👩🏾‍🚀👨🏾‍🚀🚀 !!
 7. Bonjour 🌍 !
 8. Mwadela 🌍 !
 9. Waguma 🌍 !
+10. Monile  🌍 !
+11. Ulimola 🌍 !
+12. Waguma 🌍 !
+13. Kamwene 🌍 !
+
 
